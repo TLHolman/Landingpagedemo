@@ -1,1 +1,0 @@
-# TraneiceHolmanResume.github.io
